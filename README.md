@@ -1,0 +1,2 @@
+# club_site
+THE OFFICIAL SITE OF NMIT ARTS CLUB
